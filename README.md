@@ -1,4 +1,4 @@
-# Olá visitente! eu me chamo Ygor rian, Estudante de programação e tecnologia!
+# ᴏʟá ᴠɪꜱɪᴛᴇɴᴛᴇ! ᴇᴜ ᴍᴇ ᴄʜᴀᴍᴏ ʏɢᴏʀ ʀɪᴀɴ, ᴇꜱᴛᴜᴅᴀɴᴛᴇ ᴅᴇ ᴘʀᴏɢʀᴀᴍᴀçãᴏ ᴇ ᴛᴇᴄɴᴏʟᴏɢɪᴀ!
 
 
 
